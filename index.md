@@ -2,80 +2,36 @@
 
 ### Présentation
 
-Bonjour, 
- 
-Nous sommes quelques Voreppins qui avons choisi de constituer un
-collectif citoyen pour engager une action locale sur
-l’alimentation. 
+Initié par des Voreppins, « Du champ à l’assiette » est un collectif de citoyens souhaitant engager des actions locales sur l’alimentation et travailler avec les communes du Pays Voironnais 
 
-Nous avons choisi pour l’instant nous intéresser à :
- 
-* la création d’une cuisine centrale municipale pour les crèches, les restaurants scolaires, le portage de repas et le restaurant du foyer-logement de Charminelle.
+Le collectif a pour l’instant deux axes de travail : 
+* Faisabilité et dimensionnement d’une cuisine centrale inter-municipale pour les crèches, les restaurants scolaires, le portage de repas et les restaurants de foyer-logements ou EHPAD.
+* Promouvoir et favoriser l’installation de maraîchage et petit élevage bio sur le territoire, qui alimenteraient la cuisine inter-municipale et des circuits-courts (paniers, marchés, épicerie collaborative, etc.)
 
-* l’installation de maraîchers bio sur la commune qui  alimenteraient la cuisine municipale et des lieux de distribution (paniers, marchés, épicerie collaborative, ...)
- 
-> Pour que de tels projets aboutissent, des spécialistes affirment
-> qu’il faut un mouvement citoyen moteur, relayé par une institution
-(mairie ou communauté de communes par exemple) pour que,
-finalement, des professionnels travaillent sur le terrain. 
- 
-## Nous voulons être ce mouvement citoyen.
+> Pour que de tels projets aboutissent, il faut un mouvement citoyen moteur, relayé par une institution (mairie ou communauté de communes par exemple) pour que finalement, des professionnels travaillent sur le terrain.
 
-Ce collectif n’a pas vocation à afficher une quelconque appartenance politique et il est ouvert à tous les citoyens  dans un souci de *bien commun*.
+## « Du champ à l’assiette » se veut être un collectif ouvert et constructif pour la mise en place d’une alimentation de qualité accessible à tous. 
  
-Pour nous l’important est de voir aboutir ces projets et travailler en amont sur des solutions viables (techniques, économiques et réglementaires) afin de les présenter à la municipalité et l’inciter à agir en matière d’alimentation.
- 
-Nous avons prévu aussi de faire de l’information à la population sur ces sujets, par un site web, les réseaux sociaux et des manifestations (conférences, expérimentations, seating…) afin de faire comprendre aux collectivités la nécessité d'un changement - partagé par la population - sur ces sujets. 
- 
+### Nos engagements
+* Attentifs au futur des populations et à l’avenir de nos enfants, nous portons des valeurs en faveur d’une alimentation saine, locale et résiliente.
+* Le collectif est ouvert à tous les citoyens et citoyennes dans un souci de bien commun. Il n'a pas vocation à afficher une quelconque appartenance politique
 
-### Organisation :
- 
-#### a/ Un petit groupe de membres actifs pour commencer 
- 
-* Un groupe de 6 (environ) travaillant prioritairement sur le maraîchage.
- 
-(pour l'instant : Michel Grousson, Guillaume Bras, Emmanuelle Gaillat-Fanou)
- 
-* Un groupe de 6 (environ) travaillant prioritairement sur la cuisine centrale.
- 
-(pour l'instant : Caroline Boudou, Ivana Orlitova, Isabelle Ktenas)
- 
+### Nos actions
+Le collectif souhaite travailler en amont pour l’élaboration de pré-projets viables (en termes techniques, économiques et réglementaires), en partenariat avec d’autres collectifs, associations, SCIC et municipalités.
 
-Élargissement lorsque l’avancement du projet le nécessitera.
- 
+Nous avons prévu aussi de faire de la sensibilisation et information à la population sur ces sujets. Nous communiquerons et informerons via : réseaux-sociaux (lien page Facebook à venir), newsletter (disponible dès que celle-ci aura pris forme !) et réunions publiques (en partenariat avec d’autres collectifs ou association) avec des conférenciers ou conférencières.
 
-#### b/ Un groupe de soutiens 
-Ils seront informés régulièrement de l’avancement du travail et pouvant être sollicités ponctuellement. 
- 
 
-### Nos valeurs et notre engagement :
+### Organisation
  
-* Le collectif est ouvert à tous
- 
-* Soucieux de notre futur et de l'avenir de nos enfants, nous
-portons des valeurs en faveur d'une alimentation saine, locale et
-résiliente. 
- 
+* Des membres actifs répartis en deux groupes
+Un groupe travaillant prioritairement sur le maraîchage.
+Un groupe travaillant prioritairement sur la cuisine centrale.
 
-### Activités :
- 
-* Information des Voreppins sur l’avancement de notre travail par une newsletter, une page Facebook.
- 
+* Les soutiens
+Ils sont tenus informés régulièrement de l’avancement du travail et des personnes peuvent être sollicitées ponctuellement
 
-* Elaboration de projets concrets en collaboration avec des partenaires locaux : élus municipaux à Voreppe, Moirans, la Buisse, St Jean-de-Moirans, acteurs de l’économie sociale et solidaire, et le pays Voironnais.
  
-
-* Recherche d’informations, contacts avec les agriculteurs et les instances partenaires, réflexion sur les modèles de fonctionnement, moyens de financement, recherche de professionnels.
- 
- 
+### Contact : <info@duchampalassiette-voironnais.fr>
 N’hésitez pas nous contacter afin d'échanger, nous sommes enthousiastes à l'idée de faire grandir le collectif !
- 
-A bientôt !
- 
 
-
-
-Pour toutes remarques,
-communications ou demande de renseignements complémentaires,
-merci de répondre à l’adresse suivante :
- <info@duchampalassiette-voironnais.fr>
