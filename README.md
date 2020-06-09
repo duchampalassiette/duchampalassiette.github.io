@@ -1,4 +1,4 @@
-# guillaumebras.github.io
+# duchampalassiette.github.io
 
 
-### Collectif - site vitrine
+### Collectif citoyen - site vitrine
