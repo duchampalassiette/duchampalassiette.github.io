@@ -16,3 +16,6 @@ Pour exercer ces droits ou pour toute question sur le traitement de vos données
 ce dispositif, vous pouvez contacter Caroline Boudou, domiciliée à Voreppe, numéro de téléphone 0663198333.
 
 Si vous estimez, après nous avoir contactés, que vos droits « Informatique et Libertés » ne sont pas respectés, vous pouvez adresser une réclamation à la CNIL.
+
+
+[Version PDF](images/MentionsRGPD_collectif_Voreppin_du_champ_alassiette.pdf)
