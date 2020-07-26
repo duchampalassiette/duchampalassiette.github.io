@@ -35,4 +35,4 @@ Ils sont tenus informés régulièrement de l’avancement du travail et des per
 ### Contact : <info@duchampalassiette-voironnais.fr>
 N’hésitez pas nous contacter afin d'échanger, nous sommes enthousiastes à l'idée de faire grandir le collectif !
 
-### Mentions RGPD ![ici](https://duchampalassiette.github.io/images/Mentions GDPR_collectif_ Voreppin_du_champ_a_lassiette.pdf)
+### Mentions RGPD ![ici](https://duchampalassiette.github.io/images/Mentions/GDPR_collectif_ Voreppin_du_champ_a_lassiette.pdf)
