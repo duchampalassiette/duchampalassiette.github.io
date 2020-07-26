@@ -36,4 +36,4 @@ Ils sont tenus informés régulièrement de l’avancement du travail et des per
 N’hésitez pas nous contacter afin d'échanger, nous sommes enthousiastes à l'idée de faire grandir le collectif !
 
 ### Mentions RGPD 
-[ici](https://duchampalassiette.github.io/images/Mentions/GDPR_collectif_Voreppin_du_champ_a_lassiette.pdf)
+[ici](/images/Mentions/MentionsRGPD_collectif_Voreppin_du_champ_alassiette.pdf)
