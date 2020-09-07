@@ -13,7 +13,7 @@ Vous pouvez retirer à tout moment votre consentement au traitement de vos donn�
 Consultez le site de la [CNIL](https://www.cnil.fr/) pour plus d’informations sur vos droits.
 
 Pour exercer ces droits ou pour toute question sur le traitement de vos données dans
-ce dispositif, vous pouvez contacter Caroline Boudou, domiciliée à Voreppe, numéro de téléphone 0663198333.
+ce dispositif, vous pouvez contacter Caroline Boudou, domiciliée à Voreppe, caroline.boudou.voreppe@laposte.net.
 
 Si vous estimez, après nous avoir contactés, que vos droits « Informatique et Libertés » ne sont pas respectés, vous pouvez adresser une réclamation à la CNIL.
 
